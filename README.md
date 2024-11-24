@@ -1,5 +1,10 @@
 - 👋 Hi, I’m @Antos1812
 # I'm Learning...
 
-![image](https://github.com/user-attachments/assets/e0d46ed7-58bf-4123-b741-0ba5c653b69d)
+# 
+# 
+
+
+![image](https://github.com/user-attachments/assets/fc5dc5eb-efea-467d-b431-b1cedb3c5695)
+
 
